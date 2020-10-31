@@ -1,1 +1,1 @@
-# Brownie
+First gather the ingredients to the recipe, then preheat the oven. Next, mix the sugar and oil in one pan, the eggs and vanilla in same pan as before, and the baking soda, flour, and cocoa in another pan. Add the ingredients together and mix again. Grease a (9 x 9) baking pan with butter and pur in the mixture. Put it in the oven for 20 minutes, then enjoy!
